@@ -1,0 +1,1 @@
+My name is Emily Homrighaus. This is my first year in the combined BS-MS program. I have 6 cats at my house. I don't travel very much at all.
