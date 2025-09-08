@@ -1,2 +1,2 @@
 My name is Emily Homrighaus. This is my first year in the combined BS-MS program. I have 6 cats at my house. I don't travel very much at all.
-I really enjoy speedrunning.
+I really enjoy speedrunning. Speedrunning is the act of completing a game as fast as possible.
